@@ -1,10 +1,11 @@
 # montreal-eats
 
-tl;dr; Schwartz. Long line. People get cherry coke with it. If line is long, you can get take out. The FATTY CUT is the most delicious.
-tl;dr; Juliette and chcolat is fun if you go w your coworker
-tl;dr; And if you want foie gras and a sort of fancier meal... Au pied du cocoon (Anthony bourdon did an episode on it)
-tl;dr; Get bagels! 
-tl;dr; Poutine anywhere. But La Obanquise is open 24/7 and good grubby, late night food.
+tl;dr; 
+- Schwartz. Long line. People get cherry coke with it. If line is long, you can get take out. The FATTY CUT is the most delicious.
+- Juliette and chcolat is fun if you go w your coworker
+- And if you want foie gras and a sort of fancier meal... Au pied du cocoon (Anthony bourdon did an episode on it)
+- Get bagels! 
+- Poutine anywhere. But La Obanquise is open 24/7 and good grubby, late night food.
 
 ## Long version ..
 
