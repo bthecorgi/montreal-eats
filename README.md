@@ -1,6 +1,6 @@
 # montreal-eats
 
-tl;dr; 
+### tl;dr; 
 - Schwartz. Long line. People get cherry coke with it. If line is long, you can get take out. The FATTY CUT is the most delicious.
 - Juliette and chcolat is fun if you go w your coworker
 - And if you want foie gras and a sort of fancier meal... Au pied du cocoon (Anthony bourdon did an episode on it)
