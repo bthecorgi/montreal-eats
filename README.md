@@ -17,10 +17,10 @@ for the Rich - Au Pied de Cochon (if you like Foie Gras- overwhelmingly good) - 
 Le Banquise - http://www.restolabanquise.com/ - 994, Rachel Est, Montréal - there's one at Rue Catherine, near Schwartz's too
 
 ## Montreal Smoked Meat
-### Schwartz's Montreal Hebrew Delicatessen - www.schwartzsdeli.com - 3895 St Laurent
+Schwartz's Montreal Hebrew Delicatessen - www.schwartzsdeli.com - 3895 St Laurent
 -> There will be a line. You will probably wait about 30+ minutes. It's worth it. f you don't want to wait, skip the line and get take out and eat somewhere else. Get medium to fatty meat. And get a cherry cola :)
 
-### "Reuben's" - www.reubensdeli.com - 1116 rue Sainte-Catherine Ouest
+"Reuben's" - www.reubensdeli.com - 1116 rue Sainte-Catherine Ouest
 it was okay... no Schwartz's
 
 
